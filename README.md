@@ -1,1 +1,1 @@
-# LuciaVelazquez-Junior.github.io
+# LuciaVelazquez.github.io
